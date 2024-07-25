@@ -1,5 +1,5 @@
-<h1 align="center">Hi 👋, I'm Nerodazzboi</h1>
-<h3 align="center">Newbie hehe 🐰🐥🫦👩‍🍳👩‍🎨🧚‍♀️🎨🧤🎸💻🖍️🍔🍕🍟🥓🥐🥐🥐🧀🥟🍰🍨🍫🧋🌼🪻🌷🌺🌻💐🪺🏳️‍🌈</h3>
+<h1 align="center">Hi 👋, I'm Noey 𐙚 </h1>
+<h3 align="center">Newbie hehe ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ 🌻🍰🍫🌼🐰🪸🪼🎨</h3>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
